@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on: Not Sure
 - 📫 How to reach me: Through GitHub
 - 😄 Pronouns: Dosen't/Matter
-- ⚡ Fun fact: I Collect Rocks/Fossils/Crystals
+- ⚡ Fun fact: I Collect Rocks/Fossils/Crystals/Seashells
 
 <!---
 ShotGunBarrel7/ShotGunBarrel7 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
